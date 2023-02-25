@@ -1,0 +1,1 @@
+# Normal pilav tariflerinden biraz daha uzun süren ama bu bekleyişin sefasını süreceğiniz müthiş bir pilav tarifini sizlere sunuyorum. Afiyet Olsun.
